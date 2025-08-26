@@ -1,2 +1,1 @@
-# ClashX-Meta
-ClashX Meta 下载软件教程分享
+# ClashX Meta 下载软件教程分享
